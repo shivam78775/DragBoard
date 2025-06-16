@@ -35,6 +35,10 @@
 
 📸 Screenshots:
 ![Screenshot 2025-06-16 135730](https://github.com/user-attachments/assets/8f1f29c1-efae-49b9-b559-5668376bbd2c)
+![Screenshot 2025-06-16 140123](https://github.com/user-attachments/assets/1b8ada13-7579-4e74-9eca-f72f87728ba3)
+![Screenshot 2025-06-16 140216](https://github.com/user-attachments/assets/8f534ae1-8f80-459c-a10a-602c56a98748)
+
+
 
 
 🙋‍♂️ Author
